@@ -8,3 +8,7 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
+
+
+
+![](https://media1.tenor.com/m/6vjzHxepwDkAAAAC/pout-kiss.gif)
